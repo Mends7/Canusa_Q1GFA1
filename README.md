@@ -1,1 +1,0 @@
-# Canusa_Q1GFA1
